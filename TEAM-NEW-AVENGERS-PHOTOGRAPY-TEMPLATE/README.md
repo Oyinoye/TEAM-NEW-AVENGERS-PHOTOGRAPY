@@ -1,4 +1,4 @@
-# TEAM FURY PHOTOGRAPHY TEMPLATE  
+# TEAM NEW AVENGERS PHOTOGRAPHY TEMPLATE  
 
 ## We are building Photography web templated to sell on Envato.
 
